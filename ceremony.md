@@ -14,17 +14,27 @@ Words can't express how special it is to have you so many of our friends and fam
 # Seven Blessings (Alan, Dick, Susan, Kate, Lisa, Bette, Sarah)
 PB: I'd like to welcome seven members from the Dobbins and Kanner families to the stage for the seven blessings ceremony. Alan Kanner, the father of the groom, will begin.
 
-Question: How long will this be?
+Blessing #1 (Alan)
+
+Blessing #2 (Sarah)
+
+Blessing #3 (Lisa)
+
+Blessing #4 (Dick)
+
+Blessing #5 (Susan)
+
+Blessing #6 (Kate)
+
+Blessing #7 (Laur)
 
 # Reading #1 (Alex Evangelides)
 PB: Alex Evangelides will now perform the first reading, ... by ...
 
-# Music ? (Peter Johnson + Lydia, Addie, Julia, Megan?)
+# Music ? (Peter Johnson + Nicky Bloom)
 Adele - Make you feel my love
-PB: Now we'll have music from Peter Johnson and ?, longtime friend of the groom.
+PB: Now we'll have music from Peter Johnson and Nicky Bloom, longtime friend of the groom.
 
-# Reading #2 (Lauren Kanner)
-PB: Lauren Kanner will perform our second reading.
 
 # About Sam and Emma (Patrick) (3-5 minutes)
 As a condition of my performing this marriage, you all now have to listen to me talk about Sam and Emma. I can tell you the exact moment I knew that Sam and Emma were going to get married. Years ago, when we lived together in Oakland, I was sitting in the living room on this really nice Sunday afternoon when I heard giggling coming from the kitchen. Usually, that means that Sam found something to eat. So, being hungry, I went to take a look. And I remember poking my head in and they're just sitting there, working on a crossword puzzle together, and kind of just laughing at, well, not very much.
@@ -44,8 +54,8 @@ PB: Emma and Sam will now exchange vows.
 
 # Closing / crushing of the glass (Patrick)
 
-# Recessional (Russell or Sweet Jam)
-
+# Recessional (Sweet Jam)
+[Russell hits play on the ipod]
 
 TODOs for emma and sam
 - Write first draft of community message
